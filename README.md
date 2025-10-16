@@ -26,7 +26,7 @@
 
 LinkedIn: 'Ikra Bagwan'
 
-📧: bagwanikra862@gmail.com
+📧: bagwanikra2022@gmail.com
 
 🛠️ My Skills 🔧
 
